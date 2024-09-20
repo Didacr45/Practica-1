@@ -21,4 +21,4 @@ Y por ultimo **Lamine Yamal** a ganado el trofeo a mejor jugador sub 23
 
 ![Lamine Yamal](LamineYamal.jpeg) 
 
-
+En este enlaçe podras ver la cronica i estadisticas del **Monaco-Fc Barcelona** [Cronica](https://github.com/Didacr45/Practica-1/blob/main/Cronica%20Monaco-Fc%20Barcelona.md)
