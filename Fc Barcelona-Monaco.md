@@ -1,6 +1,6 @@
 # Fc Barcelona - Monaco 
 
-Hoy se juega el Fc barcelona monaco a las 9 i apunta a ser de los mejores partidos de la jornada.
+Hoy se juega el Fc barcelona Monaco a las 9 y apunta a ser de los mejores partidos de la jornada.
 
 **Hansi Flick** comneto en rueda de prensa que **Ansu Fati** jugara bastantes minutos en el partido pero que no dira la posicon.
 
