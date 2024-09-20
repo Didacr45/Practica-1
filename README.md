@@ -11,4 +11,8 @@ Recordemos que el inicio de la temporada para el equipo cule perdio **3-0** cont
 
 En este arranque de liga el **Fc Barcelona** a sido dominate contra todos sus rivales hasta la fecha 5 con resultados favorables como un 7-0 conta el **Valladolid**, un 4-1 al **Girona**, y tres partidos segidos de 2-1 contra **Valencia Atletich club de Bilbao y Rayo Vallecano**
 
-En la Liga española el **Fc Barcelona** cuenta con el ganador al **Manager del mes** ganado por **Hansi Flick** ![Hansi Flick](Flick.jpeg)
+En la Liga española el **Fc Barcelona** cuenta con el ganador al **Manager del mes** ganado por **Hansi Flick** ![Hansi Flick](Flick.jpeg) 
+
+Tambien con el mejor jugador del mes **Raphinha** 
+
+![Raphinha](Raphinha.jpeg)
