@@ -15,4 +15,10 @@ En la Liga española el **Fc Barcelona** cuenta con el ganador al **Manager del 
 
 Tambien con el mejor jugador del mes **Raphinha** 
 
-![Raphinha](Raphinha.jpeg)
+![Raphinha](Raphinha2.jpeg)
+
+Y por ultimo **Lamine Yamal** a ganado el trofeo a mejor jugador sub 23 
+
+![Lamine Yamal](LamineYamal.jpeg) 
+
+El partido **Monaco Barça** de ayer no fue el mejor para el equipo cule que desde el minuto 10 tuvo que jugar con uno menos i eso hizo que el partido fuera malo para el **Fc Barcelona**
