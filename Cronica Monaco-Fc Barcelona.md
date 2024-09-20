@@ -12,6 +12,8 @@
 
 *FC BARCELONA*: Ter Stegen; Koundé, Cubarsí (Ferran Torres, min.80), Iñigo Martínez, Balde (Ansu Fati, min.88); Casadó, Eric Garcia; Lamine Yamal (Gerard Martín, min.80), Pedri (Pablo Torre, min.83), Raphinha; y Lewandowski (Sergi Domínguez, min.80).
 
+![Barça](FcBarcelona.jpg)
+
 **-GOLES.**
 
 1-0. Min.16, Akliouche.
