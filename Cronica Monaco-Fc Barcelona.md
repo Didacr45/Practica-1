@@ -32,11 +32,11 @@
 
 ## Cronica
 
-El partido empezo a las 9 de la noche, a los 1o minutos el arbitro del partido **Allard Lindhout** expulso con roja directa a *Eric Garcia* tras un fallo del capitan del **Fc Barcelona** *Marc Andre Ter-Stegen* que le dio la pelota a *Eric Garica* cuando el defensor se encontraba cubierto por dos jugadores del monaco. 
-En el minuto 16 marcaria el jugador del **Monaco** *Akliouche* que tiraria al palo corto y *Ter-Stegen* no pudo hacer nada para parar el disparo del joven delantero frances. 
+El partido empezó a las 9 de la noche, a los 1o minutos el árbitro del partido **Allard Lindhout** expulso con roja directa a *Eric García* tras un fallo del capitán del FC Barcelona *Marc Andre Ter-Stegen* que le dio la pelota a *Eric Garica* cuando el defensor se encontraba cubierto por dos jugadores del monaco. En el minuto 16 marcaría el jugador del Monaco *Akliouche^* que tiraría al palo corto y *Ter-Stegen* no pudo hacer nada para parar el disparo del joven delantero francés.
 
-En el minuto 28 marcaria gol *Lamine Yamal* tras un pase bueno de *Kounde* que *Lamine* le meteria cuerpo a *Vanderson* para que ese balon pasara y luego *Lamine Yamal* aria una jugada expectacular con el gol al palo corto del portero.
+En el minuto 28 marcaría gol *Lamine Yamal* tras un pase bueno de Kounde que Lamine le metería cuerpo a Vanderson para que ese balón pasara y luego *Lamine Yamal* aria una jugada expectacular con el gol al palo corto del portero.
 
-En el minuto 71 *Ilenikhena* marcaria a placer despues de un gran pase de su compañero *Zakaria* que le dejaria mano a mano contra *Ter-Stegen* que no pudo hacer nada.
+En el minuto 71 *Ilenikhena marcaria* a placer después de un gran pase de su compañero Zakaria que le dejaría mano a mano contra *Ter-Stegen* que no pudo hacer nada.
 
-En el minuto 96 el arbitro **Allard Lindhout** pitaria el final del partido.
+En el minuto 96 el árbitro **Allard Lindhout** pitaría el final del partido.
+
